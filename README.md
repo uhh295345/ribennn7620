@@ -14,4 +14,4 @@
 支持多平台观看，流畅播放和快速加载是用户最看重的体验。部分平台更提供离线下载服务，满足用户在无网络环境下的观看需求。  
 总的来说，免费黄色a一级电影的丰富多样和高品质播放，满足了现代用户对成人视频的多元化需求。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/uhh295345/ribennn7620 )</span>
